@@ -7,6 +7,7 @@
 - 1 onion, chopped
 - 4 cloves garlic, chopped
 - 1 poblano or cubanelle chili (or green bell pepper), chopped
+- 1/4 tsp liquid smoke
 - 1 tbsp cumin
 - 1/2 tbsp coriander
 - 1 tbsp sambal ulek (or hot sauce)
@@ -22,7 +23,7 @@
 - cilantro
 
 ## Preparation
-1:  Heat oil in dutch oven.  Add in onion, garlic, and chilies.  Saute on medium-high heat for three minutes.  Add in cumin, coriander, and sambal ulek.   Saute another three minutes or until onions are translucent and the peppers soft.
+1:  Heat oil in dutch oven.  Add in onion, garlic, and chilies.  Saute on medium-high heat for three minutes.  Add in liquid smoke, cumin, coriander, and sambal ulek.   Saute another three minutes or until onions are translucent and the peppers soft.
 
 2:  Add in the powdered mushrooms and stock base.  Mix well then add in the water and cover.  Bring to a boil then simmer one hour on medium-low heat.  Stir periodically to ensure bottom of the pan does not burn.  Add in oregano during the last fifteen minutes of cooking.
 

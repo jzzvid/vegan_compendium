@@ -43,3 +43,5 @@
 
 ## Notes
 This version of garry sauce emulates a sharp cheddar-like flavor.  For a less sharp version of the sauce, half the miso, lemon juice, and mustard and add 1/4 cup soaked cashews.
+
+If more depth is desired, add in a cup of finely chopped mushrooms or carrots.

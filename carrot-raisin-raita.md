@@ -4,10 +4,10 @@
 ### Salad
 - 3 cups carrots, shredded 
 - 1/2 cup raisins
-- 1/4 cup walnuts (optional)
+- 1/4 cup walnuts, chopped (optional)
 
 ### Dressing
-- 1/2 cup mayo
+- 1/2 cup Vegenaise or other mayonnaise
 - 3 tbsp maple syrup
 - 1 tbsp lemon juice
 - 1/2 tsp cinnamon
